@@ -1,1 +1,1 @@
-https://github.com/nasssteea/slozhnososredotochitsya2/tree/main
+https://github.com/nasssteea/slozhno-sosredotochitsya
